@@ -16,8 +16,7 @@
    
 ![image](https://github.com/fooriend/Veganism/assets/57613101/8f111ad1-3729-45d3-9323-cc6c0495e291)
 
-![Uploading image.png…]()
-
+<img width="1792" height="811" alt="image" src="https://github.com/user-attachments/assets/3ab43e58-765c-466a-afcc-b9c6fb3b745d" />
 
 ![image](https://github.com/fooriend/Veganism/assets/57613101/faf6a6c7-f9eb-4c00-989b-34e24f49c936)
 
